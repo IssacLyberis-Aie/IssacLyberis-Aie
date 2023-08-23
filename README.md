@@ -3,6 +3,7 @@
 - I'm currently learning of some form of money-making scheme.
 - I would love to be in a relationship.... With money of course.
 - How to reach me? Money. Fork it over.
+- I'm not greedy. I'm ambitious... and miserly.
 
 <!---
 IssacLyberis-Aie/IssacLyberis-Aie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
